@@ -1,0 +1,3 @@
+HASH DARKNESS
+
+5€ | Hash#0787
